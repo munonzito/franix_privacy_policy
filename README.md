@@ -1,0 +1,1 @@
+# franix_privacy_policy
